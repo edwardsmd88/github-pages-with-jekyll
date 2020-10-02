@@ -1,3 +1,13 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+Travelling blog 2027 - around the world in 12 months
+
+Trip info and itinerary to follow
+  # South America
+  # North America
+  # New Zealand
+  # Australia
+  # Asia
+    China
+    Singapore
+    Japan
